@@ -19,5 +19,5 @@ omerbilginbilgili@posta.mu.edu.tr
 Discord: Scroll_Lock
 
 Alican YILDIRIM 
-Tonitruart@gmail.com
+tonitruart@gmail.com
 Discord: alican.yildirim
